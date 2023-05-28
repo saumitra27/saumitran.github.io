@@ -1,2 +1,0 @@
-# saumitran.github.io
-Portfolio
